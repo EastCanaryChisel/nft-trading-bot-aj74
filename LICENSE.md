@@ -1,4 +1,4 @@
-# 
+# smart NFT Rarity Sniper for nft trading bot | royalty-calculator & rarity-analysis is the best nft trading bot, featuring royalty-calculator and rarity-analysis. Fast, smart, and
 
 
 
